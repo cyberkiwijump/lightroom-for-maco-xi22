@@ -1,4 +1,4 @@
-# 
+# new Lightroom for macOS Utility | text-animation + preset-packs is the best Lightroom for macOS utility, featuring text-animation and preset-packs. Powerful, efficient, and
 
 
 
